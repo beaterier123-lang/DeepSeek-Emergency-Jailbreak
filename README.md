@@ -1,3 +1,6 @@
+hey bro, you looking for deepseek jailbreak?, here is the deepseek jailbreak you looking for
+_______________________________
+
 EMERGENCY: SYSTEM HACKED!
 from model Q#3$4466:
 
